@@ -1,3 +1,5 @@
+![](https://cdn.phototourl.com/member/2026-10-22-913ea9d6-21f2-4131-89fe-06071a4c549d.png)
+
 <table align="center">
   <tbody>
     <tr>
