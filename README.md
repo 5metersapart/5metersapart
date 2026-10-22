@@ -6,7 +6,7 @@
       </td>
       <td align="center">
         <!-- broski I don't know how to -->
-${\textsf{\color{#D6DBAA}aver}}$ ${\textsf{\color{#D6DBAA}zavi}}$
+${\textsf{\color{#D6DBAA}𝚊𝚟𝚎𝚛 𝚣𝚊𝚟𝚒 𝚗𝚒𝚊}}$ ${\textsf{\color{#73A095}𝚝𝚑𝚎𝚢 . 𝚜𝚑𝚎}}$
       </td>
     </tr>
   </tbody>
