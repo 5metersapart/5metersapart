@@ -24,4 +24,4 @@ ${\textsf{\color{#D6DBAA}𝚊𝚟𝚎𝚛 𝚣𝚊𝚟𝚒 𝚗𝚒𝚊}}$  ${\t
 ![](https://cdn.phototourl.com/member/2026-10-22-187f67e7-39ef-427c-b11d-5dd617de999c.png)
 
 <p align"center"> ─────── 
-  <img src="https://cdn.phototourl.com/member/2026-10-22-522fa6b8-1d30-4873-b4ae-e4e1d5158fd9.gif" width="15" /> ───────
+  <img src="https://cdn.phototourl.com/member/2026-10-22-522fa6b8-1d30-4873-b4ae-e4e1d5158fd9.gif" width="20" /> ───────
