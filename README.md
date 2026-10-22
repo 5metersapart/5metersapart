@@ -10,7 +10,7 @@
       </td>
       <td align="center">
         <!-- broski I don't know how to -->
-${\textsf{\color{#D6DBAA}𝚊𝚟𝚎𝚛 𝚣𝚊𝚟𝚒 𝚗𝚒𝚊}}$  ${\textsf{\color{#73A095}𝚝𝚑𝚎𝚢}}$ 
+${\textsf{\color{#73A095}𝚊𝚟𝚎𝚛 𝚣𝚊𝚟𝚒 𝚗𝚒𝚊}}$  ${\textsf{\color{#73A095}𝚝𝚑𝚎𝚢}}$ 
         <img src="https://cdn.phototourl.com/member/2026-10-22-1af09529-3b4f-443a-808e-e35232889b0c.gif" width="15">
         ${\textsf{\color{#73A095}𝚜𝚑𝚎}}$
       </td>
