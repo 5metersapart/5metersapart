@@ -1,5 +1,4 @@
-![](https://komarev.com/ghpvc/?username=5metersapart&color=73A095) <img src="https://cdn.phototourl.com/member/2026-10-22-522fa6b8-1d30-4873-b4ae-e4e1d5158fd9.gif" width="20" />
-
+![](https://komarev.com/ghpvc/?username=5metersapart&color=73A095)
 
 ![](https://cdn.phototourl.com/member/2026-10-22-913ea9d6-21f2-4131-89fe-06071a4c549d.png)
 
