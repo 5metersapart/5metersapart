@@ -12,7 +12,7 @@
         <!-- broski I don't know how to -->
 ${\textsf{\color{#73A095}𝔞𝔳𝔢𝔯 𝔬𝔯 𝔷𝔞𝔳𝔦}}$  ${\textsf{\color{#73A095}𝖙𝖍𝖊𝖞}}$ 
         <img src="https://cdn.phototourl.com/member/2026-10-22-1af09529-3b4f-443a-808e-e35232889b0c.gif" width="15">
-        ${\textsf{\color{#73A095}она}}$
+        ${\textsf{\color{#73A095}𝔰𝔥𝔢}}$
       </td>
     </tr>
   </tbody>
