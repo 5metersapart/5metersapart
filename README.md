@@ -2,9 +2,12 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-31-34822a09-6166-4047-981c-6be86c1f1611.png)
 
-<img src="https://cdn.phototourl.com/member/2026-10-31-03b57fe6-8338-4157-8b91-8d05aeed7b66.gif" width="30" /> ![](https://komarev.com/ghpvc/?username=5metersapart&color=536B8E) <img src="https://cdn.phototourl.com/member/2026-10-31-c6eb4bb7-669d-4d07-be10-2dc67c89bca4.png" width="40" />
+<img src="https://cdn.phototourl.com/member/2026-10-31-03b57fe6-8338-4157-8b91-8d05aeed7b66.gif" width="30" /> ![visitors](https://visitor-badge.laobi.icu/badge?page_id=5metersapart.visitor-badge&left_text=sinners&left_color=%23323b45&right_color=%23587387&format=true&logo=github) <img src="https://cdn.phototourl.com/member/2026-10-31-c6eb4bb7-669d-4d07-be10-2dc67c89bca4.png" width="40" />
 
 ![](https://cdn.phototourl.com/member/2026-10-31-b19b8c61-9e15-4fb9-9334-6347d285a21a.png)
+
+<kbd>𝖙𝖍𝖊 𝖕𝖆𝖘𝖙 𝖓𝖊𝖛𝖊𝖗 𝖉𝖎𝖊𝖘</kbd>
+<sub> 𝖚 𝖗𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖚 𝖘𝖔𝖜</sub>
 
 </div>
 
