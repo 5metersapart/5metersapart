@@ -13,9 +13,6 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-31-e05f9fc8-d439-4a64-88ab-941840dcdaa6.png)
 
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkyurfddptcurlliwkqwil5xt4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
-
 ![](https://cdn.phototourl.com/member/2026-10-31-6ca00db2-c180-4d2d-838f-9c5e3f3fa41f.png)
 
 <div align="center">
