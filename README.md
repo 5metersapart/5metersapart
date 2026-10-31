@@ -19,5 +19,5 @@
 ![](https://cdn.phototourl.com/member/2026-10-31-6ca00db2-c180-4d2d-838f-9c5e3f3fa41f.png)
 
 <div align="center">
-<img src="https://cdn.phototourl.com/member/2026-10-31-162893e2-7e35-4413-8089-872ad3e89218.gif" width="100" />
+<img src="https://cdn.phototourl.com/member/2026-10-31-162893e2-7e35-4413-8089-872ad3e89218.gif" width="50" />
 </div>
