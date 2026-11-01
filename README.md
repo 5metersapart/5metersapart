@@ -6,7 +6,7 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-31-b19b8c61-9e15-4fb9-9334-6347d285a21a.png)
 
-<img src="https://cdn.phototourl.com/member/2026-10-31-03b57fe6-8338-4157-8b91-8d05aeed7b66.gif" width="20" /> <kbd>𝖙𝖍𝖊 𝖕𝖆𝖘𝖙 𝖓𝖊𝖛𝖊𝖗 ${\textsf{\color{#5E7494}𝖉𝖎𝖊𝖘}}$</kbd>
+<img src="https://cdn.phototourl.com/member/2026-10-31-03b57fe6-8338-4157-8b91-8d05aeed7b66.gif" width="20" /> <kbd>𝖙𝖍𝖊 𝖕𝖆𝖘𝖙 ${\textsf{\color{#5E7494𝖓𝖊𝖛𝖊𝖗}}}$ 𝖉𝖎𝖊𝖘</kbd>
 <sub> 𝖚 𝖗𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖚 𝖘𝖔𝖜 </sub> <img src="https://cdn.phototourl.com/member/2026-11-01-52d376e2-9657-4f0a-81cd-450b3893a32f.gif" width="50" />
 
 </div>
