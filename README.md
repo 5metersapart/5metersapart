@@ -2,7 +2,7 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-31-34822a09-6166-4047-981c-6be86c1f1611.png)
 
-![](https://count.getloli.com/@5metersapart?theme=capoo-1&padding=4&offset=16&align=center&scale=0.3&pixelated=1&darkmode=auto&num=1945)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=5metersapart.visitor-badge&left_text=%F0%9D%96%8B%F0%9D%96%91%F0%9D%96%86%F0%9D%96%92%F0%9D%96%8A%F0%9D%96%98&left_color=%23363c4f&right_color=%235a6e8a&format=true&logo=github) <img src="https://cdn.phototourl.com/member/2026-10-31-c6eb4bb7-669d-4d07-be10-2dc67c89bca4.png" width="40" />
 
 ![](https://cdn.phototourl.com/member/2026-10-31-b19b8c61-9e15-4fb9-9334-6347d285a21a.png)
 
