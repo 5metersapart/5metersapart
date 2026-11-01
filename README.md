@@ -6,8 +6,8 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-31-b19b8c61-9e15-4fb9-9334-6347d285a21a.png)
 
-<img src="https://cdn.phototourl.com/member/2026-10-31-03b57fe6-8338-4157-8b91-8d05aeed7b66.gif" width="20" /> <kbd>𝖙𝖍𝖊 𝖕𝖆𝖘𝖙 𝖓𝖊𝖛𝖊𝖗 ${\textsf{\color{#A2AFC0}𝖉𝖎𝖊𝖘}}$</kbd>
-<sub> 𝖚 𝖗𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖚 𝖘𝖔𝖜</sub> <img src="https://cdn.phototourl.com/member/2026-11-01-52d376e2-9657-4f0a-81cd-450b3893a32f.gif" width="50" />
+<img src="https://cdn.phototourl.com/member/2026-10-31-03b57fe6-8338-4157-8b91-8d05aeed7b66.gif" width="20" /> <kbd>𝖙𝖍𝖊 𝖕𝖆𝖘𝖙 𝖓𝖊𝖛𝖊𝖗 ${\textsf{\color{#5E7494}𝖉𝖎𝖊𝖘}}$</kbd>
+<sub> 𝖚 𝖗𝖊𝖆𝖕 𝖜𝖍𝖆𝖙 𝖚 𝖘𝖔𝖜 </sub> <img src="https://cdn.phototourl.com/member/2026-11-01-52d376e2-9657-4f0a-81cd-450b3893a32f.gif" width="50" />
 
 </div>
 
@@ -15,7 +15,7 @@
 
 <div align="center">
 
-| ${\textsf{\color{#A2AFC0}𝖈★𝖍⠀⠀ }}$ ${\textsf{\color{#8292AB}𝖊𝖓𝖈⠀⠀ }}$ ${\textsf{\color{#5E7494}𝖆𝖓𝖞𝖙𝖎𝖒𝖊⠀⠀}}$ <img src="https://cdn.phototourl.com/member/2026-11-01-209e3bc8-a372-45a1-8d5b-d5aae0459adf.gif" width="15" /> ${\textsf{\color{#50698C}⠀⠀𝖇𝖆𝖘𝖎𝖈 ⠀⠀}}$ ${\textsf{\color{#3E5575}𝖉𝖓𝖎 }}$ |
+| ${\textsf{\color{#A2AFC0}𝖈★𝖍⠀⠀ }}$ ${\textsf{\color{#8292AB}𝖈𝖚𝖉𝖈𝖔𝖒𝖋⠀⠀ }}$ ${\textsf{\color{#5E7494}𝖊𝖓𝖈⠀⠀ }}$ <img src="https://cdn.phototourl.com/member/2026-11-01-209e3bc8-a372-45a1-8d5b-d5aae0459adf.gif" width="15" /> ${\textsf{\color{#50698C}⠀⠀𝖇𝖆𝖘𝖎𝖈 ⠀⠀}}$ ${\textsf{\color{#3E5575}𝖉𝖓𝖎 }}$ |
 | :---: |
 
 </div>
