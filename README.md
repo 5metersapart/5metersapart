@@ -13,7 +13,7 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-31-e05f9fc8-d439-4a64-88ab-941840dcdaa6.png)
 
-| ${\textsf{\color{#A2AFC0}𝖈★𝖍⠀⠀ }}$ ${\textsf{\color{#8292AB}𝖊𝖓𝖈⠀⠀ }}$ ${\textsf{\color{#5E7494}𝖆𝖓𝖞𝖙𝖎𝖒𝖊⠀⠀⠀,}}$ ${\textsf{\color{#50698C}𝖇𝖆𝖘𝖎𝖈 ⠀⠀}}$ ${\textsf{\color{#3E5575}𝖉𝖓𝖎 }}$ |
+| ${\textsf{\color{#A2AFC0}𝖈★𝖍⠀⠀ }}$ ${\textsf{\color{#8292AB}𝖊𝖓𝖈⠀⠀ }}$ ${\textsf{\color{#5E7494}𝖆𝖓𝖞𝖙𝖎𝖒𝖊⠀⠀ᛝ⠀}}$ ${\textsf{\color{#50698C}𝖇𝖆𝖘𝖎𝖈 ⠀⠀}}$ ${\textsf{\color{#3E5575}𝖉𝖓𝖎 }}$ |
 | :---: |
 
 ![](https://cdn.phototourl.com/member/2026-10-31-6ca00db2-c180-4d2d-838f-9c5e3f3fa41f.png)
